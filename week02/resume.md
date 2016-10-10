@@ -1,0 +1,18 @@
+Graciela Montes-Lopez
+Gracie_montes@my.codergv.org
+
+
+## Work Experience
+
+** Promoter for Omnicon Conventions**
+Saves kittens on the weekends
+Sometimes works as a kitten
+Volunteers at Wildlife Scenic Parks
+
+
+
+
+## Education
+
+ **Graduated from La Joya High School**
+ **Studies computer Coding**
